@@ -17,17 +17,17 @@ Here’s my painting a few years ago:
 
 
 If you like dance or listen the interesting fun music check out my youtube account:
-                 [youtube account. dance](https://www.youtube.com/watch?v=N3EXqH797IM)
+                 [dance](https://www.youtube.com/watch?v=N3EXqH797IM)
+                 or
+                 [dance from another point of view](https://www.youtube.com/watch?v=eq8WhRBvLzk)
 
 ### My Geographical Locations
 
 I was born in *Izhevsk*.
 
-I graduated from the Faculty of Architecture at the University in the city of *Leningrad* (now it is *St. Petersburg*). During my student period, I often visited *Peterhof*, which is a suburb of *St. Petersburg*. Later, in the IMCP class, for a student project, I made a video about _**Peterhof**_
+I graduated from the Faculty of Architecture at the University in the city of *Leningrad* (now it is *St. Petersburg*). During my student period, I often visited *Peterhof*, which is a suburb of *St. Petersburg*. Later, in the IMCP class, for a student project, I made a video [Peterhof](https://www.youtube.com/watch?v=qrdlL_GbTec)
 
-![youtube account. Peterhof](https://www.youtube.com/watch?v=qrdlL_GbTec)
-
-Since the 90s from last century I lived and worked in *Kaliningrad* (it was *Koenigsberg*, a historic Prussian city).
+Since the 90s from last century I lived and worked in *Kaliningrad* that was *Koenigsberg*, a historic Prussian city.
 
 
 
