@@ -17,9 +17,9 @@ Here’s my painting a few years ago:
 
 
 If you like dance or listen the interesting fun music check out my youtube account:
-                 [dance](https://www.youtube.com/watch?v=N3EXqH797IM)
+                 [dance](https://www.youtube.com/watch?v=eq8WhRBvLzk)
                  or
-                 [dance from another point of view](https://www.youtube.com/watch?v=eq8WhRBvLzk)
+                 [dance from another point of view](https://www.youtube.com/watch?v=k8JLPpUwAck)
 
 ### My Geographical Locations
 
